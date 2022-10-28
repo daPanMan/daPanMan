@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @daPanMan
+- 👋 What's poppin' y'all, I’m John!!!
 - 👀 I’m interested in gaming, tennis, retro collecting, music, programming
 - 🌱 I’m currently learning database management
 - 💞️ I’m looking to collaborate on video game or software projects
